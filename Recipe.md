@@ -1,0 +1,1 @@
+1 and Half Cup boil Water , add tomato , add Meggi , add meggi masala, after ready add some coriander And its Ready Enjoy.
